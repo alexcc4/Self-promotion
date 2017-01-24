@@ -1,2 +1,2 @@
 # self-collection
-rules or advices ever saw
+rules or advices ever seen
